@@ -1,4 +1,4 @@
-#  
+#  Experience catch and tame like never before with catch and tame stealth Script, the #1 Script. Includes teleport and custom skins for unbeatable
 
 
 
